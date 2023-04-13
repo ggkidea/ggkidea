@@ -4,8 +4,8 @@
 
 
 Five Facts about myself are:
-1. I am a guitar player
+1. I am a guitar player especially jamming with friends
 2. I love singing
 3. I love watching comedy movies
-4. I always relate my life through music
+4. I love E-sports games
 5. I have no Girlfriend hahahahha
