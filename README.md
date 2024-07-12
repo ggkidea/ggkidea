@@ -18,6 +18,6 @@ Feel free to explore my repositories and projects. I'm always open to feedback a
 
 - **GitHub**: [github.com/ggkidea](https://github.com/ggkidea)
 - **Personal Email**: [jericmark46@gmail.com](mailto:jericmark46@gmail.com)
-- **Facebook**: [fb.com/in/j3r1c-kr4m](https://fb.com/in/j3r1c-kr4m)
+- **Facebook**: [fb.com/j3r1c-kr4m](https://fb.com/j3r1c-kr4m)
 
 Thank You for visit!
