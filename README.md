@@ -1,4 +1,3 @@
-**CCS 2700 Midterm**
 ## Hi, my name is Jeric Mark
 ### I am 3rd year college from Bachelor of Science in Information Technology of Central Philippine University.
 **Five Facts about myself are:**
