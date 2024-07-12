@@ -16,9 +16,8 @@ Feel free to explore my repositories and projects. I'm always open to feedback a
 
 ### Connect with Me
 
-- **GitHub**: [github.com/your-username](https://github.com/your-username)
-- **Email**: [your-email@example.com](mailto:your-email@example.com)
-- **LinkedIn**: [linkedin.com/in/your-linkedin](https://linkedin.com/in/your-linkedin)
+- **GitHub**: [github.com/ggkidea](https://github.com/ggkidea)
+- **Personal Email**: [jericmark46@gmail.com](mailto:jericmark46@gmail.com)
+- **Facebook**: [fb.com/in/j3r1c-kr4m](https://fb.com/in/j3r1c-kr4m)
 
-Thanks for visiting my profile!
-
+Thank You for visit!
